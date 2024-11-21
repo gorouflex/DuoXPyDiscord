@@ -1,2 +1,2 @@
 # DuoXPyDiscord
-https://discord.gg/ZED8phakZk
+[https://discord.gg/b6avTcPh2Z](https://discord.gg/b6avTcPh2Z)
